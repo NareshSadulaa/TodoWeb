@@ -6,7 +6,7 @@
 
 ## 🌟 Connect with me
 
-[![LinkedIn]()
+[![LinkedIn](https://www.linkedin.com/in/naresh-sadula-56575b27b)
 
 ---
 
